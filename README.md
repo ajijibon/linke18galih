@@ -1,0 +1,1 @@
+# linke18galih
